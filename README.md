@@ -1,1 +1,1 @@
-[Acesso]("https://astronautaviajante.github.io/politica_de_privacidade/")
+[Acesso](https://astronautaviajante.github.io/politica_de_privacidade/)
